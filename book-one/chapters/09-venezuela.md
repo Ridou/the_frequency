@@ -1,6 +1,56 @@
 # CHAPTER NINE: VENEZUELA
 
-The flight to Caracas took fourteen hours. I spent most of it recovering from the karmic fever, drifting in and out of sleep while Ren kept watch.
+**THREE WEEKS AFTER MYANMAR - THE FORGE**
+
+I'd been staring at the ceiling for an hour when Vale found me.
+
+"You're avoiding," she whisper-said from the doorway.
+
+"I'm resting. There's a difference."
+
+"Is there?" She entered my room, moved to the window. Morning light filtered through. "Myanmar was three weeks ago. The karmic fever passed after four days. Your energy is 80% restored. And yet you're still in bed at noon, telling everyone you're not ready for Venezuela."
+
+I sat up, defensive. "I'm not ready. I'm exhausted. Myanmar nearly killed me. I need more time."
+
+"Or you're afraid Venezuela will be harder. That you won't be able to replicate Myanmar's success. That people will die and you'll be responsible." She turned to look at me. "Which is it? Sacred rest or sacred avoidance?"
+
+The question hung in the air.
+
+"I don't know," I admitted.
+
+"Then let's find out." She sat on the edge of the bed. "Close your eyes. Drop into body awareness. Not your mind—your mind will rationalize either direction. Feel your actual energy state. Is the tank empty or are you afraid to spend what's left?"
+
+I closed my eyes. Dropped deeper than thought. Into pure sensation.
+
+And found... reserves. Real ones. Not full—Myanmar had cost me—but available. Enough for Venezuela if I didn't try to do it alone. If I let the Apostles support me. If I trusted the network.
+
+The exhaustion I'd been feeling was real, but only about 30%. The other 70% was fear wearing tiredness's mask.
+
+"I'm afraid," I whispered. "I'm afraid people will die. I'm afraid I'll fail. I'm afraid Myanmar was beginner's luck and Venezuela will expose that I'm not actually ready for this."
+
+"Good. Now you're being honest." Vale's voice was soft. "Chris, you're at a choice point. You can rest another week out of genuine need—and I'll support that completely. Or you can act from the 70% available energy you actually have, trusting that the work itself will restore the final 30%."
+
+"How do I choose?"
+
+"You already know. Your body told you the truth. The question is: Will you trust it?"
+
+I sat with it. Felt the fear. Felt the available energy. Felt the difference between sacred rest (honoring depletion) and sloth (avoiding challenge because it's hard).
+
+I was being lazy. Not physically—spiritually. Avoiding growth by pretending I needed more recovery.
+
+"Three days," I said. "Give me three days of real rest. Intentional integration. Then I go to Venezuela. Not forcing. Not avoiding. Choosing from wholeness."
+
+Vale smiled, rare for her. "That's wisdom. You're learning to discern instead of defaulting to extremes. Some people always push through depletion and burn out. Others always avoid and never grow. You're learning the middle path—rest when you truly need it, act when you're genuinely ready, and trust your body to know the difference."
+
+I rested three days. Actual rest. Deep sleep. Gentle walks. Integration meditation. And on day four, I woke up ready. The fear was still there—but the avoidance was gone.
+
+"Venezuela," I told the twelve. "I'm ready."
+
+---
+
+**PRESENT - FLIGHT TO CARACAS**
+
+The flight took fourteen hours. I spent most of it in focused meditation, preparing, while Ren kept watch.
 
 In my dreams, I saw timelines branching. Myanmar's success had lit a beacon that couldn't be hidden. Every sensitive on the planet had felt it. Including the Controllers.
 

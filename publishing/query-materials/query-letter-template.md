@@ -6,7 +6,7 @@
 
 Dear [Agent Name],
 
-I am seeking representation for THE FREQUENCY: AWAKENING, a 65,000-word contemporary fantasy novel with series potential. It will appeal to readers of *The Fifth Sacred Thing*, *The Alchemist*, and viewers of *The OA*.
+I am seeking representation for THE FREQUENCY: AWAKENING, a 33,000-word contemporary fantasy novella with series potential. It will appeal to readers of *The Fifth Sacred Thing*, *The Alchemist*, and viewers of *The OA*.
 
 Christian Rand is having the worst/best night of his life. Four beers deep at a sports bar, watching the Dodgers lose Game 7 of the World Series, he discovers he can channel cosmic energy into baseball players 8,000 miles away. When utility infielder Miguel Rojas crushes an impossible home run, Chris realizes he's touched something he wasn't supposed to touch. And it's touched him back.
 
@@ -36,7 +36,7 @@ Sincerely,
 
 Dear [Agent Name],
 
-THE FREQUENCY: AWAKENING (65,000 words) is contemporary fantasy meets consciousness sci-fi for readers who loved *The Fifth Sacred Thing* and *The OA*.
+THE FREQUENCY: AWAKENING (33,000 words) is contemporary fantasy meets consciousness sci-fi for readers who loved *The Fifth Sacred Thing* and *The OA*.
 
 Christian Rand discovers he can amplify human consciousness when he helps baseball players during Game 7 of the World Series. His best friend reveals he's part of twelve immortal Apostles waiting for someone like Chris—who respects free will while using cosmic power. But the Controllers, who've secretly guided humanity for centuries, see Chris as a threat to their carefully managed world order.
 
@@ -61,7 +61,7 @@ Dear [Agent Name],
 
 When Christian Rand amplifies professional baseball players from a sports bar 8,000 miles away, he thinks he's losing his mind. When his best friend reveals he's part of an immortal conspiracy waiting for someone exactly like Chris, he knows the world is stranger than he imagined. And when he's shown the Akashic Records—the universe's memory—he discovers he's fulfilling a pattern that's repeated across human history: the Christ Consciousness incarnating at civilization's threshold moments.
 
-THE FREQUENCY: AWAKENING (65,000 words) is contemporary fantasy with hard sci-fi elements, combining the consciousness exploration of *The OA*, the political sophistication of *The Fifth Sacred Thing*, and the epic scope of *Childhood's End*.
+THE FREQUENCY: AWAKENING (33,000 words) is contemporary fantasy with hard sci-fi elements, combining the consciousness exploration of *The OA*, the political sophistication of *The Fifth Sacred Thing*, and the epic scope of *Childhood's End*.
 
 Chris learns he's a natural "amplifier"—able to enhance others' connection to universal consciousness while respecting their free will. This puts him at odds with the Controllers, a faction who've guided humanity from shadows for millennia, preventing nuclear wars and managing catastrophes through carefully controlled intervention. They see Chris's gift of helping people awaken naturally as an extinction-level threat.
 

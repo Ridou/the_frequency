@@ -31,7 +31,7 @@ The real journey is just beginning.
 - Book Two: First Contact (galactic civilization)
 - Book Three: Cosmic Consciousness (humanity's role in universe)
 
-**Word Count:** 65,000 words  
+**Word Count:** 32,948 words (novella length - can expand to 50K+)  
 **Target Audience:** Adult Contemporary Fantasy/Sci-Fi  
 **Themes:** Unity consciousness, free will vs. control, planetary awakening, preparing for galactic citizenship
 

@@ -62,6 +62,60 @@ Then she opened her eyes and snapped back into focus. The void collapsed back in
 
 "It's the opposite. It's remembering that you were never separate in the first place." She gestured to a bench. "Sit. We're going to practice."
 
+I sat, but something twisted in my chest. Watching her disappear like that—effortless, complete, like she'd done it a thousand times—made me feel small. Inadequate. She'd probably been doing this for lifetimes. Ren could fold space without thinking. The Apostles moved through reality like water.
+
+And I could barely quiet a dog without breaking a glass.
+
+"You're comparing," Miriam said softly, reading something in my expression.
+
+"Of course I am. You just... you made it look so easy. And I can't even—" I gestured vaguely at myself. "I'm so far behind."
+
+She sat beside me, her presence warm despite the void I'd felt moments before. "Chris, what you admire in me—that ease, that mastery—where do you think it exists?"
+
+"In you. You've been practicing for—"
+
+"It exists in the frequency itself. In the potential of consciousness. And what is consciousness?"
+
+I thought about what Ren had taught me. "Universal. One thing experiencing itself as many."
+
+"Exactly. So if I can dissolve into everything, and consciousness is universal, then..." She waited.
+
+"Then I can too," I finished, but it felt hollow. Theoretical.
+
+"Not someday. Right now. This moment." She placed a hand on my chest. "The same awareness that flows through me flows through you. The same Source. The difference isn't capacity—it's practice. And even that gap isn't what you think."
+
+"What do you mean?"
+
+"You're not seeing potential in yourself that you admire in me. You're seeing it in me because you're denying it in yourself. I'm a mirror, Chris. Every ability that impresses you, every skill that makes you feel less than—that's showing you what you haven't activated yet. Not what you can never have."
+
+The twist in my chest loosened slightly. "So I'm... envious?"
+
+"Energy," she corrected. "You're feeling energy that wants to move you toward your own development. But your mind labeled it 'envy' and turned it against yourself. Watch what happens when you shift the frequency."
+
+She was quiet for a moment, letting me feel it. The comparison. The inadequacy. The hunger to be as skilled as she was.
+
+"Feel that fully," she said. "Don't judge it. Don't suppress it. Just... what's underneath? What's that feeling actually trying to tell you?"
+
+I closed my eyes, let myself really feel it. And under the comparison, under the not-enough-ness, I found something else.
+
+Hope.
+
+If she could do it, the potential existed. Not in some abstract universe, but in actual human consciousness. Someone had walked this path before. Left footprints.
+
+"Oh," I whispered.
+
+"There it is." Miriam smiled. "Your envy just became aspiration. Same energy. Different frequency. You're not less than me, Chris. You're earlier in the process. And that's actually a gift—you remember what it's like to struggle. When you teach others someday, you'll remember this moment."
+
+"When I teach others?"
+
+"Of course. You think you're learning this just for yourself?" She laughed, the sound like water over stones. "You're going to help millions of people remember they're connected. They'll look at you the way you're looking at me right now. Feeling inadequate. Comparing. And you'll remember this moment and tell them what I'm telling you: We're all the same Source, just at different points in remembering."
+
+The feeling in my chest transformed completely. Still intense, still powerful—but now it felt like fuel. Like possibility. Like I couldn't wait to practice.
+
+"Thank you," I said.
+
+"Don't thank me. Thank yourself for being willing to feel it and let it transform. Most people suppress envy, turn it into resentment, hoard it like poison. You let it alchemize. That's the work." She stood. "Now, let's see if you can dissolve. Not like me—like you. Your way. Your pace. Your unique expression of the same universal potential."
+
 I sat. Ren took a position a few yards away, watching.
 
 "Close your eyes," Miriam instructed. "Feel the frequency. You know how by now."

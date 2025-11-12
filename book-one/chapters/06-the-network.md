@@ -138,7 +138,125 @@ Dr. Chen taught me the systems analysis—what would happen economically when My
 
 Dimitri drilled me on non-violent resistance. "You can amplify courage, but you need to channel it productively. Protests yes. Violence no. The moment it turns violent, you lose international sympathy and justify crackdown."
 
+---
+
+On day two, something arrived that changed everything.
+
+Sabine handed me a tablet showing news footage from Myanmar. The military had opened fire on peaceful protesters. Twenty dead. Children among them.
+
+I watched the video. Saw people running. Saw bodies on the ground. Saw the monks trying to shield civilians with their own bodies.
+
+White-hot rage exploded in my chest.
+
+"I want to kill them," I heard myself say. "The generals. The ones who gave the orders. I could fold there right now, find them, and—"
+
+I stopped. Realizing what I was saying. What I was feeling.
+
+Nox appeared from the shadows. Always the shadows. "And then what?"
+
+"Then they can't hurt anyone else."
+
+"And the rage in your chest right now—where does it go after you kill them?"
+
+I was breathing hard. "I don't know. I don't care. They murdered children, Nox. CHILDREN."
+
+"I know." His voice was soft, dark, like smoke. "I've felt that rage. Across iterations. Across centuries. The desire to destroy what destroys. It's righteous. It's powerful. It's also—if expressed unconsciously—exactly what the Controllers do. They decide who deserves to live based on their calculus of the greater good."
+
+"This is different."
+
+"Is it?" He sat across from me, shadows literally pooling around him. "They think they're protecting humanity by controlling it. You think you're protecting humanity by destroying them. Same energy. Same certainty. Different target. Both coming from the same wound."
+
+"They're murdering people!"
+
+"Yes. And your rage at that—it's valid. It's power. It's protection instinct gone fully conscious. Good." He leaned forward. "The question isn't should you feel this. You SHOULD. The question is: What do you DO with it?"
+
+I wanted to hit something. Wanted to fold to Myanmar right now and— 
+
+"Breathe," Nox said. "Feel it fully. All that rage. All that righteous fury. Don't suppress it. Don't judge it. Just feel it."
+
+I did. Let the anger fill my chest, my throat, my fists. Let it burn.
+
+"Now," Nox continued, "ask why. What's underneath the rage? What are you actually protecting?"
+
+"I'm protecting innocent people from being murdered by tyrants!"
+
+"Deeper."
+
+I breathed. Felt under the anger. Found... fear. Terror that I wouldn't be able to stop it. That I'd arrive in Myanmar and more people would die and it would be my fault for not moving fast enough. For not being powerful enough. For not—
+
+"Oh," I whispered. "I'm afraid I can't save them. I'm angry at my own powerlessness."
+
+"And you're projecting that onto the generals. Making them the enemy so you don't have to feel helpless." Nox's shadows curled around my shoulders, not threatening, supportive. "Chris, here's what you need to see: Those generals are afraid too. They're terrified of losing control. Of chaos. Of what happens if the people reject their authority. They're acting from trauma. From the military coup history of Myanmar. From seeing what happens when governments fall and power vacuums create bloodbaths."
+
+"That doesn't excuse—"
+
+"I'm not asking you to excuse them. I'm asking you to SEE them. To see their humanity. Not for their sake—for yours." He held my gaze. "Because here's the alchemy: If you can see that they're acting from pain, from fear, from trauma—if you can hold that truth alongside your rage—something shifts."
+
+I wanted to resist. Wanted to hold onto the anger, the righteousness of it. But I tried. Felt the rage. Saw the generals as human. Saw their fear of chaos. Saw that they genuinely believed they were saving Myanmar from destroying itself.
+
+And the rage... transformed.
+
+It was still there. Still powerful. Still intense. But the quality changed. Like switching from fire that burns to fire that warms. From fire that destroys to fire that forges.
+
+"What just happened?" I asked, breathing hard.
+
+"You transmuted wrath into fierce compassion. Same energy. Same power. But now you can act from higher frequency without losing your strength." He stood. "You still want to stop them from hurting people?"
+
+"Yes. Absolutely."
+
+"And now you can. But instead of destroying them, you're going to help them transform. You're going to reach the soldiers—help them feel their connection to the people they're ordered to shoot. Help them remember they're Burmese, not the junta. Help them choose differently."
+
+The anger was still there, but it wasn't consuming me anymore. It was fueling me. Fierce determination. Protective force. Mama bear energy.
+
+"This is what you needed to learn," Nox said. "The Controllers suppress their rage and it leaks out as cold calculation. Unconscious people express it as violence. But you—you feel it fully, see the humanity beneath it, and let it become compassionate action that can still fight, still protect, still say NO with power."
+
+"That's the Philosopher's Stone, isn't it? What you've been teaching me all along."
+
+"The real alchemy." He smiled, rare for him. "Transmuting base emotions into higher consciousness while keeping the energy. Lead into gold. Rage into fierce love. Same power. Different frequency. This is what separates you from the Controllers. They use the same knowledge but inverted—suppressing, deflecting, controlling. You feel, transmute, and act from higher state without losing power."
+
+"Can you teach me to do this with everything? Every emotion?"
+
+"You've already been learning. Envy became aspiration with Miriam. Gluttony became presence with Tao. Pride became humble confidence with Ren. Now wrath becomes fierce compassion with me. By the time you leave for Myanmar, you'll have transmuted all seven of what the ancients called the deadly sins. Not by suppressing them. By alchemizing them into virtue while conserving the energy."
+
+I looked at the tablet again. The bodies. The violence. And I felt the transmuted rage—fierce, protective, powerful. But clean. Without poison.
+
+"I'm going to help those soldiers remember," I said. "And the generals are going to have a choice: Transform or be left behind by their own army choosing love."
+
+"Now you're ready," Nox said.
+
+---
+
+Later that day, Sabine found me during a break.
+
+"I've been thinking," I said. "With my abilities... I could fold into banks. Transfer funds to the resistance. Give Myanmar's network unlimited resources. I could—"
+
+"You could," she said carefully. "But?"
+
+I paused. Felt the temptation. The practical logic of it. We needed funding. The network ran on donations and volunteer work. I could solve that in an afternoon.
+
+"But it would be stealing," I finished.
+
+"Would it? From who? Banks are insured. Corporations have billions. You'd be redistributing wealth to people who actually need it."
+
+I could feel it—the rationalization. The slippery slope. The Controllers probably started with logic like this. Just small interventions. Just taking from those who had too much. Just—
+
+"No," I said firmly. "That's greed disguised as ethics. The moment I start taking what isn't offered, I become a Controller. I violate free will. I impose my judgment of who deserves what."
+
+"Even if people die because we don't have enough resources?"
+
+The question was brutal. "Even then. Because the alternative is me becoming exactly what we're fighting against. If the network needs resources, we ask. We fundraise. We create value and exchange it. We don't steal, even from the wealthy, even for good reasons."
+
+Sabine studied me for a long moment, then smiled. "Good. You just passed a test you didn't know you were taking. V tried that same angle on three previous candidates. All of them justified the theft. All of them ended up recruited by Controllers within months. You're the first who said no."
+
+"That was a test?"
+
+"Everything's a test when you're being evaluated for catalyst work." She squeezed my shoulder. "You chose integrity over expedience. Resources will flow to you specifically because of that choice. Energy follows intention. The universe responds to alignment."
+
+She was right. Over the next weeks, funding appeared. Anonymous donations. Supporters emerging. People who wanted to help who had resources. The network's funding problems solved themselves because we'd chosen the hard right over the easy wrong.
+
 Kai connected me with the Pacific network, the cells in Thailand, Bangladesh, India that would support Myanmar once it transitioned. "You're not alone. The network is real. Resources will flow. You just have to start the cascade."
+
+Dimitri continued drilling me on non-violent resistance. "You can amplify courage, but you need to channel it productively. Protests yes. Violence no. The moment it turns violent, you lose international sympathy and justify crackdown."
 
 Sabine handled logistics—fake documents, safe houses, escape routes if things went wrong. "You're valuable but not invincible. If the military moves against you specifically, you fold out immediately. Understand?"
 
