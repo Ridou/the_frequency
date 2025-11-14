@@ -1,5 +1,161 @@
 # CHAPTER TEN: THE SERPENT STRIKES
 
+Sophia was alone when Vera found her. Intentionally alone—she'd needed space to process the merge, to remember who she was apart from Chris.
+
+"Sophia Rivera," a smooth voice said from the garden pathway.
+
+She turned. A woman stood there—elegant, composed, radiating POWER.
+
+"Vera Castellanos. I'm a Controller." She smiled. "Though we prefer 'Steward.'"
+
+Sophia's hand went to the moonstone at her throat. "You should leave."
+
+"I wanted to speak with you first. Woman to woman. Before the war really begins." Vera moved closer. "They're using you, you know. The Twelve. They've paired you with Chris because your energies complement. But who gets the GLORY? Who gets called 'the chosen one'? Whose name is whispered?"
+
+Despite herself, Sophia felt the words land.
+
+"When people talk about Myanmar, what do they say? 'Chris awakened 25,000 people.' Do they mention YOU? The woman who HELD the space, who TRANSFORMED the energy?" Vera's smile was razor-sharp. "Or do they treat you like his support system? His divine counterpart?"
+
+"What do you want?"
+
+"To offer you another path. We value the feminine—truly. Not as complement, but as EQUAL power. You could unite millions under YOUR direction, not his. Be the leader, not the support."
+
+"By controlling people without consent?"
+
+"By guiding humanity before it destroys itself. You could use your gifts for YOURSELF, Sophia. Not as Chris's battery."
+
+Before she could respond, another voice cut through:
+
+"She's powerful enough alone that you came to recruit her separately."
+
+Chris stepped from the shadows, Ren beside him.
+
+Vera's expression didn't change. "Eavesdropping?"
+
+"Protecting my partner," Chris said, moving to stand BESIDE Sophia. Not in front of. "She's not my battery. She's my equal. Without her, Myanmar doesn't happen. It's BOTH OF US creating something neither could create alone."
+
+"Beautiful speech. But how long until you believe you're the essential one?"
+
+"That won't happen," Sophia said, voice STRONG now. "Because I won't let it. You're right—I DO need to know my power alone. But the Controllers aren't how I find that. You're just a different cage. Control dressed as empowerment."
+
+Vera studied her. "You're sure?"
+
+"I'm sure."
+
+"Pity. You would've been magnificent with us." She turned to leave. "When you realize the Twelve are using you, when you want to know what you can do WITHOUT him... call me."
+
+She left like smoke dissipating.
+
+Sophia was shaking. Chris reached for her hand but she pulled away.
+
+"Don't."
+
+"Sophia—"
+
+"She's right, Chris. About some of it." She turned, eyes blazing. "I DO need to know my power alone. I need to know I'm SOPHIA, with or without you."
+
+"You're not—"
+
+"Prove it."
+
+"How?"
+
+"Venezuela. We split up. You take north, I take south. Separate. No merged consciousness. Just each of us alone."
+
+"That's not the plan—" Ren started.
+
+"CHANGE THE PLAN." Her full power emerged. The air HUMMED. "I'm not Chris Rand's sacred feminine counterpart. I'm SOPHIA RIVERA. And if I'm really essential, if I'm really his EQUAL... then I should be able to awaken people MYSELF."
+
+Chris's heart was breaking, but she was right. "Okay. Venezuela. We split up."
+
+"Really?"
+
+"Really. You're not my support system, Sophia. You're my equal. Time to prove it—to yourself."
+
+She closed the distance, hugged him fiercely. "Thank you."
+
+"But afterwards, we talk about this. About us. Because forge-mates or not, I can't keep pretending that Myanmar was just... work."
+
+"Deal."
+
+---
+
+**VENEZUELA - THE SEPARATION**
+
+Venezuela was supposed to be our proof-of-concept. Myanmar worked. Now could we replicate it?
+
+And more importantly—could Sophia and I work separately?
+
+She took the southern region—Caracas, dense urban centers where fear ran deep. I took the northern coast—fishing villages, communities that had held onto hope.
+
+Five thousand people each. Same time, different locations. No merged consciousness. No complementary energies.
+
+Just... each of us alone.
+
+I won't lie: I was terrified.
+
+My awakening was rough.
+
+I could project the frequency. I was good at it—ninety days of training, natural talent. Pure solar force.
+
+But without Sophia's transformation work, I was just PUSHING energy at people.
+
+Some awakened—the ones ready, who wanted it. Some resisted—felt attacked, overwhelmed. Some shut down completely—my projection without her reception was too harsh, too MUCH.
+
+Seventy percent success rate. Not bad. Not Myanmar.
+
+Three hundred miles south, Sophia was discovering the same thing.
+
+She could RECEIVE the collective field—all five thousand simultaneously. Could FEEL their fear, their hope. Could hold their pain, transform their terror into possibility.
+
+But without my projective energy, she didn't have enough PUSH to catalyze the shift.
+
+People felt loved, seen, safe. But only sixty percent actually awakened.
+
+All transformation, no initiation. All alchemy, no spark.
+
+That night, exhausted and humbled, we met in a safehouse in the mountains between our territories.
+
+"How'd it go?" she asked, collapsing onto the couch.
+
+"Seventy percent. You?"
+
+"Sixty."
+
+We looked at each other and started laughing—exhausted, relieved laughter that had everything to do with the absurdity of trying to do alone what we were designed to do together.
+
+"I can't do it without you," I admitted.
+
+"I can't do it without you either."
+
+"Does that bother you? That we need each other?"
+
+She thought about it. "A week ago? Yes. It would have felt like Vera was right. But now... Stars need planets, Chris. Planets need stars. They don't diminish each other by being necessary to each other. They create SOLAR SYSTEMS together."
+
+"So we're a solar system now?"
+
+"We're an ECOSYSTEM. We're BALANCE. Nothing exists alone. Everything is relationship." She turned to face me fully. "I spent my whole life being told needing anyone was weakness. But that's not how ANYTHING in nature works."
+
+I pulled her into a hug. "Tomorrow, we combine our regions. Ten thousand people, together."
+
+"North and south poles again?"
+
+"The sacred balance. The forge-mates doing what forge-mates do."
+
+---
+
+**VENEZUELA - COMBINED**
+
+The next day, we awakened ten thousand people in Venezuela.
+
+Success rate: Ninety-eight percent.
+
+Because the divine masculine and the divine feminine weren't competing.
+
+They were DANCING.
+
+---
+
 Tunisia fell like a perfectly executed chess move.
 
 Youssef's digital network was too sophisticated, too distributed for the Controllers to dismantle. When a hundred thousand people gathered in Tunis, connected through encrypted apps and mesh networks, the awakening happened faster than anyone could stop.

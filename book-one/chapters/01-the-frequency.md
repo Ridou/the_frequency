@@ -188,3 +188,23 @@ Ren's smile could've lit up the whole room.
 
 "Trust me," Ren said, standing and dropping cash on the table. "You have no idea."
 
+As we walked out, his phone buzzed. He glanced at it, and something shifted in his expression—subtle, but I was learning to read him.
+
+"What?" I asked.
+
+"Nothing. Just..." He pocketed the phone, but I caught the slight smile. "Tomorrow's going to be interesting."
+
+"More interesting than finding out I can teleport and there's a secret society of awakened people?"
+
+"Different kind of interesting." He stood, leaving cash on the table. "Get some rest, Chris. Tomorrow you meet the Twelve."
+
+"Just the Twelve?"
+
+That smile again. "We'll see."
+
+And he was gone before I could ask what the hell that meant.
+
+I had no idea my entire life was about to change.
+
+Again.
+

@@ -66,9 +66,69 @@ I stumbled as I entered, my brain struggling to process space that didn't follow
 
 "It gets easier," he said. "The first time is always disorienting. This place exists... between. Between here and there. Between now and then. A space we created for meetings that need to happen outside normal reality."
 
-The other eleven filed in behind us. Each one took a seat at the table, leaving one chair empty. Ren gestured to it.
+The other Apostles filed in behind us, but I stopped counting at eleven.
 
-"That's the thirteenth chair," he said. "Sometimes it's empty. Sometimes someone sits there. Tonight—if you choose—it's yours."
+Because there were thirteen figures in the room.
+
+The thirteenth stood slightly apart from the forming circle, near Miriam, looking as overwhelmed as I felt. A woman, late twenties, long dark hair in a loose braid that fell over one shoulder. She wore faded jeans and a hoodie that said "ERAS TOUR 2023" in letters that had clearly survived too many concerts and washing machines. Stacks of colorful friendship bracelets covered both wrists, and a small moonstone pendant caught the light at her throat.
+
+She looked up as I fully entered the room.
+
+Our eyes met.
+
+The room *hummed*.
+
+I mean that literally—a low frequency vibration that made the air shimmer between us, like heat waves off summer pavement. The sound wasn't audible exactly, more like something I felt in my bones, in my teeth, in the base of my skull.
+
+Several of the Apostles looked up sharply. Kael raised an eyebrow. Tao's face broke into a slow, knowing smile. Sable's spiral tattoos seemed to pulse in rhythm with the vibration.
+
+The woman's hand flew to her chest, eyes wide with shock. "What is—"
+
+"What the hell?" I managed, unable to look away from her. Those eyes—deep brown with flecks of gold, like Earth itself looking back at me.
+
+She took a shaky breath. "You're... doing something. To my chest. It's vibrating."
+
+"I'm not doing anything," I said, but even as I said it, I knew it wasn't true. Something WAS happening. Something between us. "Are you doing something to ME?"
+
+"I don't even know what I CAN do yet!" Her voice had a musical quality, like she was used to listening to harmonics most people couldn't hear. "I just got here three days ago. I'm still trying to figure out if I'm having a psychotic break or if this is real."
+
+"It's real," I said automatically. "Trust me, I had the same question last week."
+
+Ren stepped forward, that slight smile still playing at his lips. "Chris, this is Sophia. Sophia, Chris. Why don't you both take your positions in the circle, and we'll begin."
+
+"That's it?" I asked. "No explanation for why the room is vibrating when we look at each other?"
+
+"Some things," Ren said mysteriously, "are better experienced than explained."
+
+Sophia and I exchanged uncertain glances as the Twelve arranged themselves around the table—twelve chairs, and two seats left for us. Me at one point, Sophia directly across, the diameter of the space between us.
+
+The hum didn't stop. If anything, it got stronger.
+
+"Is this normal?" Sophia asked the room at large.
+
+Miriam's smile was warm but cryptic. "Define normal."
+
+"Is anyone else feeling this?" I pressed.
+
+The Twelve exchanged glances—knowing, amused, maddeningly unhelpful.
+
+"We'll discuss what you're experiencing after today's training," Kael said. "For now, just... observe it. Don't fight it. Don't force it. Just let it be."
+
+I looked across the table at Sophia—this stranger who somehow didn't feel like a stranger at all, whose presence made the air sing with recognition.
+
+She looked back at me, hand still on her chest, feeling that same vibration.
+
+We didn't know what we were to each other yet.
+
+But we both knew it was something.
+
+Something that felt like coming home to a place I'd never been, meeting someone I'd always known.
+
+I didn't know if that was beautiful or terrifying.
+
+Watching the way Sophia's eyes widened as she felt what I felt, I suspected she had the same question.
+
+Probably both.
 
 I sat, feeling the significance of the moment even if I didn't fully understand it.
 
@@ -298,4 +358,112 @@ The frequency in the room surged. All twelve Apostles glowing with golden light.
 The circle was complete.
 
 The work could begin.
+
+---
+
+Later, after the meeting dissolved and the Apostles began to fade back through the fold to their own lives, Ren found me on a balcony that shouldn't have existed in the impossible room but did anyway.
+
+I was staring at the city lights below—or what looked like city lights. In this between-space, I couldn't be sure what was real and what was reflection.
+
+"Quite a day, huh?" Ren said, joining me at the railing.
+
+I laughed—slightly manic edge to it. "Understatement of the fucking century. I just met twelve immortal mystics who told me I might be some kind of prophesied savior of humanity. So yeah. Quite a day."
+
+They stood in silence for a moment. The city hummed below them—millions of people living regular lives, unaware that reality had just cracked open for one ordinary tech support worker who happened to love baseball.
+
+Ren's heart was hammering. Three years of deception pressing down on him like gravity, like the weight of the universe demanding truth. *Tell him. Tell him NOW. Before he finds out another way. Before trust becomes impossible to rebuild.*
+
+"Chris, there's something I need to tell you."
+
+Something in Ren's tone made me turn fully, wariness creeping into my eyes. "What?"
+
+The words felt like stones in his mouth. Each one heavy. Each one necessary. "Three years ago, Tao came to me with an assignment."
+
+I waited. Silent.
+
+"He'd identified a potential Pattern. Said I should find him. Be his friend. Be there when he awakened." Ren forced himself to meet my eyes. "I'm saying I was sent to find you. Our meeting wasn't coincidence. I knew who you were—what you might become—before we ever met."
+
+The silence that followed was the kind that has weight. Physical pressure. The kind that precedes earthquakes or the moment before glass shatters.
+
+"You're telling me," my voice was dangerously quiet, every word precise, "that our entire friendship was an assignment?"
+
+"No. Yes. Fuck." Ren ran his hand through his hair, the gesture I'd seen a thousand times now taking on different meaning. "I was assigned to be near you. To position myself as someone you'd trust when the time came. But everything else—the friendship, the late-night talks about life and meaning and whether the Dodgers would ever win another Series—that was REAL. That was MY choice."
+
+"How am I supposed to believe that?" My voice cracked like ice under pressure. "How do I know ANY of it was real? Maybe you're just really fucking good at your job. Maybe I'm just a mission to you. Another box to check for the immortal mystics."
+
+The accusation hit like a physical blow. Ren felt it land in his chest, settle there like a stone. "You were a mission," he admitted. "For about three months. Then you became my friend. My actual, genuine, *chosen* friend. The mission was proximity. Everything I felt after that—that was choice."
+
+"Three years, Ren." I turned away, gripping the railing so hard my knuckles went white. "THREE YEARS you've been lying to me."
+
+"I wasn't lying about loving you like a brother. I wasn't lying about giving a shit when your grandmother died and you couldn't sleep for weeks. I wasn't lying when I said you mattered to me." Ren's voice broke. "I was lying about how we met. About why I was there. And I'm sorry. I'm so fucking sorry, Chris."
+
+I was quiet for a long time. Ren let the silence sit. Didn't try to fill it with justifications or explanations or pleas. Just let me feel what I was feeling. Process what I needed to process.
+
+Finally, I spoke, voice small now, young: "Did Tao tell you to say all that too? Is this part of the manipulation? Keep me thinking we're friends so I'm easier to control?"
+
+The question landed like a knife between the ribs.
+
+"No. God, no." Ren took a shaky breath. "This is me, risking everything, telling you the truth because you DESERVE the truth. Even if it means you hate me. Even if it means I lose you." He paused, gathering courage. "I was sent to find you. I chose to love you. Both things are true."
+
+"I don't know if I can trust you."
+
+"I know."
+
+"I don't know if I can forgive this."
+
+"I know."
+
+"But I also don't know if I can do this without you." My voice cracked completely now. "Is that fucked up? That I still need you even though you lied to me?"
+
+"It's human." Ren moved carefully—giving me space to reject him if needed. "Look, I don't expect forgiveness. I don't expect trust. I just... I'm not going anywhere. Assignment or not, you're stuck with me. Unless you tell me to leave. Then I'll go. But until you say those words, I'm here."
+
+I turned to look at him, really look at him, and Ren saw everything on my face—the betrayal, the confusion, the anger, and underneath it all, the three years of genuine friendship that didn't stop being real just because it started from a lie.
+
+"Why tell me now?" I asked. "Why not just let me never know?"
+
+"Because you'd figure it out eventually. And I'd rather lose you for telling the truth than keep you through deception." Ren met my eyes. "And because Tao told me: 'Be his genuine friend or don't do this at all.' If I kept lying, I wouldn't BE your friend. I'd just be playing a role."
+
+"I hate that this makes sense."
+
+"I hate that I put you in this position."
+
+"I need time. To process this. To figure out if I can trust you again."
+
+"Take all the time you need. I'll be here. Not because Tao told me to. Because I choose to."
+
+I nodded slowly. Didn't say it was okay—because it wasn't okay. Didn't say I forgave Ren—because I didn't, not yet. Just: "Okay."
+
+And Ren had to let that be enough.
+
+We stood there in uncomfortable silence, something broken between us that might heal stronger or might never heal at all. Below them, the city continued its oblivious existence. Traffic flowed. Lights blinked. Life went on.
+
+But up here, in this impossible space, everything had changed.
+
+"I'm going inside," I said finally. "I need... I need to not be around you right now."
+
+Each word was a small death, but Ren nodded. "I understand."
+
+I walked to the door, then paused. Didn't turn around. Just said, quietly: "For what it's worth? The friendship felt real to me. All three years. I just don't know what's real and what I imagined now."
+
+Then I was gone.
+
+Ren stood alone on the balcony, the weight of three years of deception settling onto his shoulders fully now. No more secret to carry. Just the consequences of choices he'd made when he thought he was doing the right thing.
+
+Behind him, footsteps. He turned to find Miriam standing there, her silver-streaked hair loose around her shoulders, expression gentle.
+
+"That took courage," she said simply.
+
+"Doesn't feel courageous. Feels like I just destroyed the best friendship I've ever had."
+
+"Maybe. Or maybe you just saved it." She moved to stand beside him, both of them looking out at the city. "Lies compound, Ren. Truth hurts clean. You gave him clean pain. That can heal."
+
+"What if he never forgives me?"
+
+"Then you'll carry that pain. With love." She placed a hand on his shoulder. "Tao gave you an impossible task. Be someone's genuine friend while deceiving them about why you're there. You did your best. Now you're doing better. That matters."
+
+After she left, Ren stood there for a long time, watching the city lights blur through tears he didn't bother hiding.
+
+He'd told the truth.
+
+Now he had to live with whether that truth destroyed what mattered most.
 

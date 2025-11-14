@@ -198,6 +198,46 @@ I nodded. "Four days. Spread the word. Gather everyone who's ready. And make sur
 
 "The world is already watching Myanmar," Daw Suu said grimly. "They've been watching us struggle under military rule for years. When they see us gather to meditate instead of protest, when they see what happens during that meditation, when they see us declare we're Earth before we're Myanmar—it's going to change everything."
 
+---
+
+While I studied with the monks, Sophia found herself drawn to the monastery's small shrine to Tara—the female Buddha, the mother of liberation.
+
+I found her there one evening, sitting before the green statue, tears streaming down her face in the flickering candlelight.
+
+"You okay?" I asked gently, sitting beside her.
+
+She nodded, wiping her eyes. "One of the monks—Sonam—told me Tara represents 'swift compassion.' She doesn't wait for you to be perfect. She meets you in your mess, your pain, right where you are."
+
+"That sounds like you."
+
+"The feminine is supposed to be soft, right? Nurturing. Gentle." She paused. "But I'm also fierce. Protective. Mama-bear energy. I'll burn the world down to protect someone I love. I never knew how to reconcile Sweet Sophia who cries at concerts and Fierce Sophia who would stare down a demon."
+
+"That's Tara too," a voice said.
+
+Sonam stood in the doorway, weathered face creased with warmth.
+
+"Green Tara is loving-kindness," he said carefully. "But also fierce protection. Mother AND warrior. She nurtures AND destroys what threatens her children. The divine feminine is not weak, young one. It is the most powerful force in the universe. It births stars. It destroys civilizations that dishonor life. It is the ocean that nurtures AND drowns."
+
+Sophia's breath caught.
+
+"The Western world forgot the sacred feminine. Suppressed her. But she's returning now, through women like you. And she's ANGRY." He smiled, something wild in it. "Good. Let her rage. Let her reclaim."
+
+After he left, Sophia sat very still.
+
+"I think I've been apologizing for my power my whole life," she said, voice steady now.
+
+"What if you stopped?"
+
+She met my eyes. Fire. Divine fire.
+
+"What if I did?"
+
+The divine feminine was waking up.
+
+And she was not interested in asking permission anymore.
+
+---
+
 "Or it's going to fail spectacularly and get people killed."
 
 She put her hand on my shoulder. "You saw the Pattern. You accepted the role. Do you believe it was a lie?"
